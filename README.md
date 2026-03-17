@@ -13,6 +13,7 @@ I can't wait for you to start (after spending LOTS of time with me) and its goin
 
 ---
 
+
 ## 🥳 Celebration Checklist
 - [x] Got Job
 - [x] Said YAYYAYAYYAYYA
@@ -23,3 +24,5 @@ I can't wait for you to start (after spending LOTS of time with me) and its goin
 
 ## ❤️ From your biggest fan
 (your princess angel baby sasha 😌)# proud-of-you
+
+![celebration](https://media.giphy.com/media/...)
